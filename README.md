@@ -1,2 +1,2 @@
 # Belajar-Kolaborasi
-Belajar itu bagus
+Belajar itu baik
