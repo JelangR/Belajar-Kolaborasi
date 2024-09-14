@@ -1,2 +1,3 @@
 # Belajar-Kolaborasi
-Belajar itu baik
+Belajar itu menyala abangku
+FMIPA JOS JOS JOS
