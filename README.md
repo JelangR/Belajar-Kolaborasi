@@ -1,2 +1,2 @@
 # Belajar-Kolaborasi
-Belajar itu seru
+Belajar itu mantap
